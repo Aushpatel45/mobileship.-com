@@ -1,1 +1,0 @@
-# mobileship.-com
